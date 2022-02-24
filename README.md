@@ -1,1 +1,1 @@
-### [We favor<br>anonymous<br>gender neutral<br>opensource<br>licenses.](https://webmural.com/license)
+### [We mix it up<br>among licenses<br>that support<br>open ethos.](https://s9a.page/license)
